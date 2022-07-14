@@ -1,2 +1,1 @@
-# im pro idiot
-## i do c# & python sometimes
+# most inactive account winner (2022)
